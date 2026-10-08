@@ -1,4 +1,4 @@
-<p align="center">$\color{#505DAE}{GITHUB​ MADE ​FOR ​NAME ​TAG ​ONLY.}$</p>
+<p align="center">$\color{#505DAE}{PONYTOWN'S​ VIKTOR​ (ARCANE)​ AND ​MACHINE​ HERALD ​(LEAGUE​ OF ​LEGENDS) ← TY ​NOMINATIONS!}$</p>
 
 <p align="center"><img width="710" height="193" alt="1054b24e-1e22-4de8-952e-4dffa3eb5302" src="https://github.com/user-attachments/assets/7222ae2f-effa-4db5-88d4-850af32a757f" /></p>
 
@@ -12,7 +12,7 @@
 <td>
 <br>
 
-<p align="center">$\color{#A0BAD0}{​Call ​me ​Viktor ​and ​use​ He/Him ​exclusively.​ 18 ​years​ old.}$</p>
+<p align="center">$\color{#A0BAD0}{​Call ​me ​Viktor ​and ​use​ He/Him ​exclusively ​please.​ 18 ​years​ old. ​Under​ 15 ​please​ dni.}$</p>
 
 <p align="center">$\color{#A0BAD0}{My ​main​ has ​all ​the​ needed ​information ​about​ me. ​I ​would ​prefer ​if ​you ​go ​there ​before ​interacting.}$</p>
 
